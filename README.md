@@ -7,4 +7,4 @@
 - 💬 Ask me about physics, math, molecular simulations, and computational physics.
 - 📫 How to reach me: LinkedIn >> https://www.linkedin.com/in/jnitliong-11/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love music and singing and I enjoy cooking a variety of dishes.
+- ⚡ Fun fact: I love music and singing and I enjoy cooking variety of dishes.
